@@ -15,10 +15,11 @@ https://github.com/user-attachments/assets/19e680d8-f8c4-4bbf-b53e-4e9135c329e4
 El Mini-Air-Fly, Made in Spain, ya esta disponible.
 
 Se presenta en distintas carrocerias y rangos de alcance, desde solo 50$ los modelos aerodirigidos.
-
 (Cuerda no incluida)
 
-Consulta aqui la disponibilidad.
+
+
+Consulta [aqui](https://necropoly.redtienda.net/pro.php?id=478373) la disponibilidad.
 
 
 Para los mas pequeños tambien contamos con los modelos recargables y mas seguros de Helio, con antiapertura de lata del pato Donald's.
