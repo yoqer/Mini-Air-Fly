@@ -1,4 +1,5 @@
 # Mini-Air-Fly
+
 El Mini-Air-Fly es un Dron con forma cilíndrica de pocas dimensiones que compite con los drones con la estabilidad y bajo consumo energético del hidrógeno y el agua. Con el peso y tamaño de un refresco puede pasar desapercibido en estanterías y transporte. Pero cuenta con avanzado radar, altitud de vuelo limitada a resistencia y comunicacion de Km.
 
 
@@ -24,6 +25,13 @@ Para los mas pequeños tambien contamos con los modelos recargables y mas seguro
 Desde solo unos pocos Dolare$, formatos personalizables, como del:
 
 Made in... 
+
+
+
+
+https://github.com/user-attachments/assets/e70c8094-7bde-40b2-b80d-ccd4dcfe95cf
+
+
 
 (Con dispositivos, banderitas patrioticas o meme Coins.)
 
