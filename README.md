@@ -7,7 +7,7 @@ El Mini-Air-Fly es un Dron con forma cilíndrica de pocas dimensiones que compit
 
 El Mini-Air-Fly, Made in Spain, ya esta disponible.
 
-Se presenta en distintas carrocerias y rangos de alcance, desde solo 50$ los modelos aerodirigidos.
+Se presenta en distintas carrocerias y rangos de alcance, desde solo 50$ los modelos aerodirigidos. (Cuerda no incluida)
 
 
 
