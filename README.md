@@ -25,7 +25,7 @@ Desde solo unos pocos Dolare$, formatos personalizables, como del:
 
 Made in... 
 
-(Con banderitas patrioticas o meme Coins.)
+(Con dispositivos, banderitas patrioticas o meme Coins.)
 
 
 
