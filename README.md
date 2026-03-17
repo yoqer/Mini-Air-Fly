@@ -20,8 +20,11 @@ Se presenta en distintas carrocerias y rangos de alcance, desde solo 50$ los mod
 Consulta aqui la disponibilidad.
 
 
-Para los mas pequeños tambien contamos con los modelos recargables y mas seguros de Helio, con antiapertura lata del pato Donald's.
-Desde solo unos pocos Dolare$ personalizables de: Made in... 
+Para los mas pequeños tambien contamos con los modelos recargables y mas seguros de Helio, con antiapertura de lata del pato Donald's.
+Desde solo unos pocos Dolare$, formatos personalizables, como del:
+
+Made in... 
+
 (Con banderitas patrioticas o meme Coins.)
 
 
